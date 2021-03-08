@@ -1,1 +1,1 @@
-https://orbitalpressure.github.io/rsschool-cv/
+https://orbitalpressure.github.io/rsschool-cv/cv
